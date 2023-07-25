@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @manubarb
-- 👀 I’m interested in coding and currently studying information systems (1st semester)
+- 👀 I’m interested in coding and currently studying information systems (2nd semester)
 - 🌱 I’m currently learning the basics ;-;
 
 
